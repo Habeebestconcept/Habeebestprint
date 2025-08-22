@@ -22,4 +22,4 @@ Once published with **GitHub Pages**, the site will be available at:
 
 ## 📬 Contact  
 For business inquiries:  
-📧 Email: habeebest@example.com
+📧 Email: habeebadekeye94@gmail.com
